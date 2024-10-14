@@ -4,6 +4,8 @@ If you need to obtain it, please use the school's education email address: wljy2
 Fill in the
 
 
+Data set links:[https://www.alipan.com/s/AoQSvd6ahPj](https://www.alipan.com/t/XW1SqORBI0tK0bDRcqey)
+
 ![Bird-1-_JPG rf 9d6f2c6e266ebe69d3994c2233ded011](https://github.com/user-attachments/assets/b9f92d12-fa9e-4c53-940c-cd14886cc8d9)
 ![Cleaan-4-_jpg rf d76b48dcde841aae43223d9afb847023](https://github.com/user-attachments/assets/4f1c1775-2645-432c-ae7f-cb9028b633f6)
 
